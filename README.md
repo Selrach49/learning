@@ -1,0 +1,2 @@
+# learning
+teaching my self
